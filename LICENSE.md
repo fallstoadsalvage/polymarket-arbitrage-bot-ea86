@@ -1,4 +1,4 @@
-# 
+# best Polymarket Algorithm | automated-trade-execution + smart-contract-integration is the best Polymarket algorithm, featuring automated-trade-execution and
 
 
 
